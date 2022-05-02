@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dmitr1yR
-- 👀 I’m interested in IT, of course, also do some sports
+- 👀 I’m interested in IT
 - 🌱 I’m currently learning on the 1st course, direction applied mathematics and informatics
 - 📫 inst: @woodr0w_, dr89501386677@icloud.com
 
